@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Gwakman
+- Just trying things
+- Have a good day !
